@@ -1,4 +1,4 @@
-## 3D Print / Prototype services / Impression 3D entre particulier
+## 3D Print / Prototype services / Impression 3D entre particuliers
 
 Besoin d'imprimer quelque chose sans que ca vous coute un bras ?
 
